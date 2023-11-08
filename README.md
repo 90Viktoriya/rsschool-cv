@@ -1,1 +1,1 @@
-https://90Viktoriya.github.io/rsschool-cv/cv
+https://90Viktoriya.github.io/rsschool-cv/
